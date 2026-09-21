@@ -142,7 +142,6 @@ Program: **Beginner Track**
 
 **GitHub:** https://github.com/tayyabaawan731-droid
 
-**LinkedIn:** https://www.linkedin.com/in/tayyaba-awan-196304341?utm_source=share_via&utm_content=profile&utm_medium=member_android
 
 ---
 
